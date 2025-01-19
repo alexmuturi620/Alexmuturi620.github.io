@@ -3,6 +3,13 @@ layout: about
 title: About
 ---
 
-## About
+### why
+with our increasing population the demand for land is unquenchable thus leading to displacement of wild animals. 
 
-Hi, nice to meet you.
+### how
+by creating awareness of our daily activities that bring harm to our ecosystem.
+
+### contact
+give your remarks at whatsapp +254722177607
+
+
