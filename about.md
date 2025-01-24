@@ -4,7 +4,7 @@ title:
 ---
 
 ### why
-with our increasing population the demand for land is unquenchable thus leading to displacement of wild animals. 
+with our evolving technology we need an unders 
 
 ### what
 our goal is to conserve nature and make it easy for humans to co-exist with animals.
