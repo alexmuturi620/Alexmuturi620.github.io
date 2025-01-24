@@ -4,10 +4,10 @@ title: about
 ---
 
 ### why
-with our evolving technology we need an unders 
+with our steadily evolving technology I passionately desire to provide solutions to our never ending needs from different clients globally.
 
 ### what
-our goal is to conserve nature and make it easy for humans to co-exist with animals.
+
 
 ### how
 by creating awareness of our daily activities that bring harm to our ecosystem.In addition educating people to conserve plants that largely controls carbon emission.
